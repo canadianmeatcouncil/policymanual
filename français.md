@@ -240,13 +240,13 @@ Déc. 2017 trimestrielle
 - Que les dispositions " Buy American " du Berry Amendment et de la National School Lunch Act soient éliminées, ce qui permettrait au Canada de remplir les contrats du gouvernement des États-Unis.
 
 
-### PTP-11 et ALE Japon
+### PTPGP et ALE Japon
 
 Déc. 2017 trimestrielle
 
-*Officiellement appelé Partenariat transpacifique global et progressiste (PTPGP). Japon, Canada, Malaisie, Vietnam, Singapour, Brunei, Australie, Nouvelle-Zélande, Mexique, Chili et Pérou. Accord sur les éléments de base conclu en décembre 2017 au Vietnam en marge de la réunion des dirigeants de l'APEC. Les dispositions sur l'accès au marché restent intactes. Aucune prochaine étape prévue.*
+*Officiellement appelé Partenariat transpacifique global et progressiste (PTPGP). Japon, Canada, Malaisie, Vietnam, Singapour, Brunei, Australie, Nouvelle-Zélande, Mexique, Chili et Pérou. Accord signé en mars 2018.
 
-- Que le Canada doit diriger l'achèvement, la ratification et la mise en œuvre de l'accord le plus tôt possible.
+- Que le Canada doit diriger la mise en œuvre de l'accord le plus tôt possible.
 - Nos ventes d'une valeur de 1,2 milliard de dollars au Japon représentent 20 % de la valeur de toutes les exportations de viande (6 milliards $). 2.
 - Que nos ventes d'une valeur de 1,2 milliard de dollars au Japon (qui représentent 20 % de la valeur de toutes les exportations de viande [6 milliards $]) sont menacées par les ALE du Japon avec d'autres partenaires commerciaux (Australie, Mexique, Chili et bientôt l'UE).
 - Que le fait de ne pas préserver les dispositions de l'accès au marché menace en outre les 500 millions $ supplémentaires d'exportations annuelles de viande au Japon (300 millions $ pour le porc et 200 millions $ pour le bœuf).
