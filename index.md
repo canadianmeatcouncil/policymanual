@@ -109,12 +109,18 @@ Dec. 2017 Staff Directive
 
 - That the CFIA modernize container seals as part of e-certification.
 
+### Market Access
+
+Dec. 2017 Quarterly
+- China: That access be negotiated for the same product coverage the U.S. achieved (chilled pork) including full systems approval for eligibility of establishments export. 
+- Argentina: improve current access based on the available science and new OIE standards on PRRS. 
+
+
 ### Slaughter Modernization
 
 Dec. 2017 Staff Directive
 
-- That the CMC work with the CFIA to finalize a pilot project as a first step to implement slaughter modernization in all pork plants.
-
+- That the CMC work with the CFIA to finalize a pilot project as a first step to assess if this initiative can be implemented  slaughter modernization- in all pork plants.
 ## Technical Committee
 
 ### CFIA Modernization
@@ -221,13 +227,13 @@ Dec. 2017 Quarterly
 - That access to the U.S. for SRM-removed MBM needs to be restored as it presents even lower risks that imports of Cattle.
 - That the Berry Amendment and the National School Lunch Act’s “Buy American” provisions should be eliminated, allowing Canada to supply U.S. government contracts.
 
-### TPP-11 / Japan FTA
+### CPTPP / Japan FTA
 
 Dec. 2017 Quarterly
 
-*Formally known as: Comprehensive and progressive Trans-Pacific Partnership CPTTP.   Japan, Canada, Malaysia, Vietnam, Singapore, Brunei, Australia, New Zealand, Mexico, Chile and Peru. Agreement on core elements reached in Dec. 2017 in Vietnam on margins of APEC Leaders meeting. Market access provisions remained intact. No clear next steps outlined.*
+*Formally known as: Comprehensive and progressive Trans-Pacific Partnership CPTTP.   Japan, Canada, Malaysia, Vietnam, Singapore, Brunei, Australia, New Zealand, Mexico, Chile and Peru. Signed in March 2018. No clear timeline on Canadian implementation. 
 
-- That Canada needs to lead the earliest-possible completion, ratification and implementation of the agreement.
+- That Canada needs to lead the earliest-possible implementation of the agreement.
 - Our $1.2 billion of sales to Japan represent 20% of all meat export values ($6 billion).  2.
 - That our $1.2 billion of sales to Japan (representing 20% of all meat export values (i.e., $6 billion) is jeopardized by Japan’s FTAs with other trading partners (Australia, Mexico, Chile and soon the EU).
 - That not preserving the market access provisions further jeopardizes $500 million of additional annual meat exports to Japan ($300 million pork - $200 million beef).
